@@ -17,7 +17,6 @@
 
  <br> ‎You're welcome to sit/cuddle/whatever with me at any time!
 
- <br><sup> Side note: I didn't copy that person's damn Hellfire Gala Cyclops pony. I'm an adult with a job and I don't spend my time copying ponies on a pixel game. We're all forced to work with limited options, so if my character happened to 'look the same' as someone else's pony of the SAME CHARACTER, then I can't help that! I don't even use the skin often, so please don't label me as a 'skin stealer'. Thanks.
 
   <br> <img src='https://i.imgur.com/86zxnx5.gif'>
 
