@@ -16,6 +16,9 @@
 <br> <img src='https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/c3ef2508-134f-4f8a-ad4d-5d53cf1cabba/dh19odm-fa0481b1-e344-4fc2-91f1-99d44697ad00.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2MzZWYyNTA4LTEzNGYtNGY4YS1hZDRkLTVkNTNjZjFjYWJiYVwvZGgxOW9kbS1mYTA0ODFiMS1lMzQ0LTRmYzItOTFmMS05OWQ0NDY5N2FkMDAuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.-qxrlARMYgvXRHUS8DtUMBERJyPMknasCUdtHIVuyAU'> <img src='https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/7f07c132-6e55-4943-9bb7-dbef21458a42/dfor1gw-685c4126-61f8-4030-a5de-be08c139db1a.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzdmMDdjMTMyLTZlNTUtNDk0My05YmI3LWRiZWYyMTQ1OGE0MlwvZGZvcjFndy02ODVjNDEyNi02MWY4LTQwMzAtYTVkZS1iZTA4YzEzOWRiMWEuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.bGDWzTQU8CSOM5xBVhChlt9azaFE_9VqEnqz-2D5R5s'>
 
  <br> ‎You're welcome to sit/cuddle/whatever with me at any time!
+ 
+ <br> no dni but if you're gonna bring up stupid old pt drama PLEASE put it to rest i've already talked w/ all the parties involved. 
+ <br> we're chill. nobody gaf anymore ok cool
 
 
   <br> <img src='https://i.imgur.com/86zxnx5.gif'>
