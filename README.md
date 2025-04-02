@@ -1,4 +1,5 @@
 <div align='center'> 
+  <br> i swear to god keep me out of old pt drama shit. i don't get involved in it and i don't gaf. i've got actual irl things to worry about and i talked with the people associated and apologized so leave me alone thank you lmao.
   <p><img src='https://media.tenor.com/QNmcwfqtP3UAAAAi/spidermancap.gif'
 
  <br> ‎(<i>he/she</i>)
