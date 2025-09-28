@@ -1,5 +1,4 @@
 <div align='center'> 
-  <br> i swear to god keep me out of old pt drama shit. i don't get involved in it and i don't gaf. i've got actual irl things to worry about and i talked with the people associated and apologized so leave me alone thank you lmao.
   <p><img src='https://media.tenor.com/QNmcwfqtP3UAAAAi/spidermancap.gif'
 
  <br> ‎(<i>he/she</i>)
@@ -18,8 +17,7 @@
 
  <br> ‎You're welcome to sit/cuddle/whatever with me at any time!
  
- <br> no dni but if you're gonna bring up stupid old pt drama PLEASE put it to rest i've already talked w/ all the parties involved. 
- <br> we're chill. nobody gaf anymore ok cool
+ <br> DNI proship, school shooter skins/sympathizers, pedos, general freaks etc. Don't bring up stupid old PT skin drama either nobody gaf about that
 
 
   <br> <img src='https://i.imgur.com/86zxnx5.gif'>
