@@ -1,5 +1,5 @@
 <div align='center'> 
-  <p><img src='https://media.tenor.com/QNmcwfqtP3UAAAAi/spidermancap.gif'
+  <p><img src='https://internetbee.neocities.org/image/art/pixels/Daft-Punk/Daft-Punk_Discovery_2x.gif'
 
  <br> ‎(<i>he/she</i>)
  <br> <sup>comics, MGS, horror, sci-fi,</sup> <sup><a href="https://rentry.co/spikespiegels">& more!!</a> </sup>
