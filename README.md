@@ -17,7 +17,7 @@
 
  <br> ‎You're welcome to sit/cuddle/whatever with me at any time!
  
- <br> DNI proship, school shooter skins/sympathizers, pedos, general freaks etc. Don't bring up stupid old PT skin drama either nobody gaf about that
+ <br> DNI proship, school shooter skins/sympathizers, pedos, general freaks etc. Don't bring up stupid old drama either nobody gaf about that
 
 
   <br> <img src='https://i.imgur.com/86zxnx5.gif'>
