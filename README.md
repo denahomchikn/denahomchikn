@@ -1,7 +1,7 @@
 <div align='center'> 
   <p><img src='https://internetbee.neocities.org/image/art/pixels/Daft-Punk/Daft-Punk_Discovery_2x.gif'
 
- <br> ‎(<i>he/she</i>)
+ <br> ‎(<i>he/she1</i>)
  <br> <sup>comics, MGS, horror, sci-fi,</sup> <sup><a href="https://rentry.co/spikespiegels">& more!!</a> </sup>
 
 
